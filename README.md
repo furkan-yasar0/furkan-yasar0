@@ -26,4 +26,4 @@ I am a 3rd-year Computer Engineering student at Muğla Sıtkı Koçman Universit
 - Claude & n8n ile YZ Asistanı Geliştirme — Techcareer.net (Oct 2026)
 - Member at BBT (Sponsorship Team) & HSD MSKÜ
 
-[LinkedIn](https://www.linkedin.com/in/furkan-yaşar-b8a7a83ba)
+[LinkedIn](https://www.linkedin.com/in/furkan-yasar0)
